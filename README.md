@@ -6,4 +6,9 @@
 ## America will never fuck up until you suck my dick
 
 
-![images.jpeg](https://i.loli.net/2020/08/20/vzDm8F76e2cArXZ.jpg)
+![images.jpeg](https://github.com/7447326/fuck_trump/raw/master/images.jpeg)
+
+## You just look like a pile of shit
+
+
+![images.jpeg](https://github.com/7447326/fuck_trump/raw/master/shit.jpg)
